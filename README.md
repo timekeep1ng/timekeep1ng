@@ -10,7 +10,7 @@
   
 <img width="630" height="351" alt="deceivingoneselfiseasybutlikingshadowmilkiseasier" src="https://github.com/user-attachments/assets/b91c324e-1e27-4826-a3e7-1191f56ac478" />
   
-  [strawpage](https://d4rksideofthemoon2.straw.page/) ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
+  [strawpage](https://shamisotherrealm.straw.page/) ︵ [pronouns.cc](https://pronouns.cc/@d4rksideofthemoon) ︵ [atabook](https://d4rksideofthemoon.atabook.org/)
 
   PLEASE check pronouns.cc for more information.
   
